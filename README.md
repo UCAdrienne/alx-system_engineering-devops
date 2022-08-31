@@ -1,0 +1,2 @@
+# alx-system_engineering-devops
+ALX 1ST WEEK OF PROBATION...OMO IS ALL I KEEP SAYING FATHER HAVE MERCY.
